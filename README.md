@@ -1,0 +1,1 @@
+# CM12.1_Samsung_Galaxy-Core-Prime_SM-G360t1
